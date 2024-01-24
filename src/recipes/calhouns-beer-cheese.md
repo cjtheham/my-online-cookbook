@@ -18,6 +18,8 @@ ingredients:
 * place in top portion of a double boiler along with milk
 * heat until melted, mix w/ whisk
 * place beer, worchestire sauce, dry + dijon mustard, tabasco sauce in small mixing bowl
+    * note for next make: try more beer!
 * mix well then add to cheese
-* bake 350 degrees until hot, 20 min. 
+* bake 350 degrees until hot, 20 min.
+    * NOTE: this will bubble over, make sure you're prepared for this
 * keep in crockpot on low
